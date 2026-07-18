@@ -1,4 +1,4 @@
-# 💫 Hi 👋, Abhishek Thakur
+# Hi , I Am Abhishek Thakur
 **A passionate Computer Science Student || Machine Learning || AI/ML Learner**
 
 Email Me 👉 ✉️ **abhishekthakur48700@gmail.com** For Collaboration/Project or Anything Else. 😊😊
